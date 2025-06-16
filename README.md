@@ -1,2 +1,1 @@
-# -
-معلومات عن ابن خالتي عمر الجامد
+# -الموقع:https://himaxtechh2.github.io/omar-s-portiflio/
